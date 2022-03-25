@@ -5,9 +5,7 @@
 📍My Telegram: Arl1kEr
 📍My Discord: Arl1kEr#3236
 📍My Skype: Arl1kEr
-📍My YouTube: https://www.youtube.com/channel/UCY3WMJ8z-bTWEYdlQyh3f-w
-📍My Twitch: https://www.twitch.tv/arl1ker888
-📍My TikTok: arl1ker888
+
 
 <!---
 Arl1kEr/Arl1kEr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
