@@ -1,1 +1,1 @@
-📍My VK: https://vk.com/arl1ker888
+📍My VK: https://vk.com/arl1ker
